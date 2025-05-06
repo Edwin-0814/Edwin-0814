@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Edwin-0814
 - 👀 I’m interested in Books,Music and anything Adventurous.
-- 🌱 I’m currently learning computer sciencs
+- 🌱 I’m currently learning computer science
 - 📫 How to reach me https://www.linkedin.com/in/edwin-paul-b9660233a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - ⚡ Fun fact: Forcing yourself to smile will result in you truly smiling...
 
